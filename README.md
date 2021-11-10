@@ -1,3 +1,0 @@
-# WeCanGaming
-
-Hallo
